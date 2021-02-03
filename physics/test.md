@@ -4,11 +4,11 @@
 
 - ~~[1.28](https://ks.wjx.top/jq/104089560.aspx)~~
 
-- [1.30](https://ks.wjx.top/vj/PnFsbej.aspx)
+- ~~[1.30](https://ks.wjx.top/vj/PnFsbej.aspx)~~
 
-- [2.1](https://ks.wjx.top/vj/Q0PfAAV.aspx)
+- ~~[2.1](https://ks.wjx.top/vj/Q0PfAAV.aspx)~~
 
-- [2.3](https://ks.wjx.top/vj/YfoyyWr.aspx)
+- **[2.3](https://ks.wjx.top/vj/YfoyyWr.aspx)**
 
 - [2.5](https://ks.wjx.top/vj/wFCUUBo.aspx)
 
