@@ -12,7 +12,7 @@
 
 - ~~[2.5](https://ks.wjx.top/vj/wFCUUBo.aspx)~~
 
-- ## [2.7](https://ks.wjx.top/vj/rXi9hhl.aspx)
+- ## [2.7](https://ks.wjx.top/vm/rXi9hhl.aspx)
 
 - [2.9](https://ks.wjx.top/vj/m5E9dXX.aspx)
 
